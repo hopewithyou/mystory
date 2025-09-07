@@ -3,7 +3,9 @@
 
  Lot of memories need to tel u
  
- R u reading ? 
+
+
+ Can you send any positive sign that you are seeing this?
 
 
 
