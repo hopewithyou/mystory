@@ -2,7 +2,7 @@
 
 How is ur day?
 
-I used to play cricket near your house. I especially played just to see you. You had a white dress that you looked very beautiful in. I don’t know how you look now,  the last time I saw you was when you were in 10th class
+ school days apudu , me enti degara cricket aduthunde i played just becz to see u . neku oka white dress unde u looks preety in that
 
 
 
